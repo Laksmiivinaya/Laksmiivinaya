@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Laksmiivinaya
-- 👀 I’m interested in Java,Meditation, Kiirtan <3
-- 🌱 I’m currently learning Java, Myslef, this wonderful world ;)
+- 👀 I’m interested in Java, Meditation, Kiirtan <3
+- 🌱 I’m currently learning Java, Myself, this wonderful world ;)
 - 💞️ I’m looking to collaborate on spiritual idea(:
 - 📫 How to reach me Telegram @Laksmiivinaya
 - 😄 Pronouns: ...
